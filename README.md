@@ -11,9 +11,9 @@
 
 ### Connect with me:-
 
-<a href="www.linkedin.com/in/suyash-batham-77371a16b/" rel="nofollow" class="rich-diff-level-one" target="_blank"><img align="left" alt="Suyash Batham | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" style="max-width:100%;"></a>
+<a href="https://www.linkedin.com/in/suyash-batham-77371a16b/" rel="nofollow" class="rich-diff-level-one" target="_blank"><img align="left" alt="Suyash Batham | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" style="max-width:100%;"></a>
 
-<a href="https://www.instagram.com/suyash_batham/" rel="nofollow" class="rich-diff-level-one" target="_blank"><img align="left" alt="Suyash batham | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" style="max-width:100%;"></a>
+<a href="https://www.instagram.com/suyash_batham/" rel="nofollow" class="rich-diff-level-one" target="_blank"><img align="left" alt="Suyash Batham | Instagram" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/instagram.svg" style="max-width:100%;"></a>
 
 <br />
 <br />
